@@ -1,1 +1,14 @@
+Reflection on The Case Against Grades   by Alfie Kohn 
+
+I found this article to be an interesting insight into a problem that I have wrestled with throughout my academic career. I have been one to struggle with finding the balance of choosing a academic course that I found interesting but was challenging or picking a major that was perhaps less rigorous. I chose the challenge but because of that I believe I sacrificed valuable points in my grade point average. This has barred me from acceptance in a graduate program and potentially fruitful and fulfilling careers.
+
+  Growing up grades always became the enemy. If you did not get that “A” it always seemed to be a failure. After a while of that feeling you start to identify in some respects as failure. It infects other parts of your life especially growing up because school is such a large part of your life. Also, this may be a side bar, but when did a “C” ever mean that you received an average score. 
+
+  I think grades are utilized at an easy way out for educators to communicate with one another. It is much less time consuming to assign a letter grade to a student than it is to take the time to explain the progress, shortcomings and strengths of a student. The same is true of the instructor or institution receiving this information. Admissions processes would lengthen, and this may cause a financial burden due to extended hours needed to make informed decisions about the candidates. This may not be a major factor, but it seems more and more money is what affects decisions sadly also in academia.
+
+  There have been times when the effort applied to a course and the learning obtained did not match. In organic chemistry I was blind sided by the first of three exams. This set the tone for the rest of the semester because I could never recoup the loss of points on the at first test even though I kicked my butt into gear and did well on the remaining exams I still only squeaked out a “B-“ in the course. This did not reflect my mastery of the material or the growth throughout the semester.
+
+  Now more that earlier in my life I have a much better perspective on why I am learning and cultivating skills. If grades were removed from courses I would be motivated to learn by demands of the industry that I am hoping to join. To become a capable and excellent candidate. Beyond that to continue to gain become an asset in my career. There is a joy that can be found in applying your craft with expertise. That is what would motivate me to continue learning.
+
+  If grades went away tomorrow I would not miss them. How ever if they are to be eradicated, we would need a new system to replace them. This would require major collaboration between all levels of education. I am excited to see how this will work this semester it will be a new experience and I hope it goes well.
 
